@@ -1,2 +1,0 @@
-# CutFromTheSameCloth
-Christa&amp;Chan
